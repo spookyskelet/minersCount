@@ -1,3 +1,7 @@
+# Please add me as an Agent Developer [Published] on Discord, my discord username is spookyskeleton#8419
+
+
+
 # Count 24H active miners
 
 ## Description
